@@ -1,2 +1,2 @@
-# jordyn-schnupp-personal
+# jordyn-schnupp
 coding,,,, :3
